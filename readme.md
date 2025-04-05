@@ -1,0 +1,1 @@
+El documento ya estaba resuelto inge pero lo revise todo, y lo corri
